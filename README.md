@@ -49,5 +49,3 @@ I'm interested in research and engineering opportunities involving structural dy
 I welcome technical discussions and research collaborations.
 
 ---
-
-*Links to LinkedIn, publications, and the YouTube channel will be added as those profiles are finalized.*
